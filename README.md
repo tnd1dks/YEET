@@ -1,3 +1,3 @@
 # MinSung & KiHoon
 
-Come to Gao middle school
+010-2305-7929
